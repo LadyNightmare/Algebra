@@ -1,1 +1,1 @@
-# Algebra
+All resources found.
